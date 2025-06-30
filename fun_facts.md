@@ -2,3 +2,4 @@
 - Bananas are berries, but strawberries aren’t.
 - Octopuses have three hearts and blue blood.
 - Sea otters hold hands while sleeping so they don’t drift apart in the water.
+- Elephants can “hear” with their feet.
